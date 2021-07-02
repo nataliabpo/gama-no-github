@@ -1,0 +1,1 @@
+A experiência no Hiring Codes tem me dado muito gás para continuar meus estudos em programação. Tenho muito coisa para aprender ainda e os instrutores tem facilitado demais esse caminho de aprendizagem.
